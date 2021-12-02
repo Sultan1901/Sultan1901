@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @Sultan1901
+- 👋 Hi, I’m @Sultan Alharbi
 - 👀 I’m interested in every thing
 - 🌱 I’m currently learning JavaScript
-- 📫 How to reach me u just look at the Sky
+- 📫 How to reach me u  ===> just look at the Sky
 
 <!---
-Sultan1901/Sultan1901 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+ I Just push my Self ahead , next i am sure i will be what i wana to be , by the way my bachelor degree not relaited with programming but never stop never tired never give up
+in the end i won cuz i like what i do and dong and done ==> Peace 
 --->
