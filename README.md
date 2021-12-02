@@ -5,5 +5,5 @@
 
 
  I Just push my Self ahead , next i am sure i will be what i wana to be , by the way my bachelor degree not related with programming but never stop never tired never give up
-in the end i won cuz i like what i do and dong and done ==> Peace 
---->
+in the end i won cuz i like what i do, doing and done ==> ()
+
